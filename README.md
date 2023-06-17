@@ -1,4 +1,6 @@
 
+![Ai](https://github.com/vaibhav030798/vaibhav030798/assets/76680409/1a3424eb-18e7-414f-97d9-eed192397e29)
+
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/vaibhav-kurrey-315551136/) 
 
